@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Vizper's blog
 
-I'm glad you are here. I plan to talk about ...
+I am boring. Give me candy   CANDYY!!
